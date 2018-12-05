@@ -5,6 +5,8 @@
 Wszystko W Pył / Everything Into Dust Brand
 Accessory & Clothing Brand
 
+Lasercut stencil of Wszystko W Pył
+
 http://www.wszystkowpyl.pl
 
 ![GALLERY QUAD](/assets/template_visuals/temp-dual-gallery.png)
