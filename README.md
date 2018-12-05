@@ -2,7 +2,10 @@
 
 <a name="intro"></a>
 # EID_Season - Everything Into Dust / Wszystko W Pył - Kannibal Wear Season
-Description.
+Wszystko W Pył / Everything Into Dust Brand
+Accessory & Clothing Brand
+
+http://www.wszystkowpyl.pl
 
 ![GALLERY QUAD](/assets/template_visuals/temp-dual-gallery.png)
 
