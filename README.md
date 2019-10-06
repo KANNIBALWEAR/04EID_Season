@@ -1,7 +1,7 @@
 [Season Cover]
 
 <a name="intro"></a>
-# EID_Season - Everything Into Dust / Wszystko W Pył - Kannibal Wear Season
+# EID_Season - Everything Into Dust / Kannibal Season
 Wszystko W Pył / Everything Into Dust Brand
 Accessory & Clothing Brand
 
