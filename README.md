@@ -1,7 +1,7 @@
 [Season Cover]
 
 <a name="intro"></a>
-# EID_Season - Everything Into Dust / Kannibal Season
+# EID_Season - Everything Into Dust / Kannibal Season (5th Season) Time Destination: 2024
 Wszystko W Pył / Everything Into Dust Brand
 Accessory & Clothing Brand
 
